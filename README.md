@@ -1,0 +1,2 @@
+# bilgiiyar-mas-
+yarışma
